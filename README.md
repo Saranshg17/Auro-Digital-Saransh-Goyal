@@ -1,1 +1,1 @@
-# Auro-DIgital-Saransh-Goyal
+# Auro-Digital-Saransh-Goyal
